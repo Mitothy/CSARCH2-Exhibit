@@ -7,4 +7,4 @@ Group 8
 4. Tan, Timothy Joshua
 5. Uy, Nicole Kate
 
-[Presentation Vide](https://youtu.be/-sLAhYsXpEc)
+[Presentation Video](https://youtu.be/-sLAhYsXpEc)
